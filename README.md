@@ -11,7 +11,7 @@
 ---
 
 ### 🔗 Let's connect
-📬 [Telegram](https://t.me/muzaffaar_77) &nbsp; 📸 [Instagram](https://instagram.com/_muzaffaar_) &nbsp; 🌐 [Portfolio](https://portfolio-puce-seven-wzfdau6dkh.vercel.app/) &nbsp; 🧩 [Codewars](https://www.codewars.com/users/GaybullayevMuzaffar) &nbsp; 🔗 [LinkedIn] (https://www.linkedin.com/in/muzaffar-gaybullayev) $nbsp; 
+📬 [Telegram](https://t.me/muzaffaar_77) &nbsp; 📸 [Instagram](https://instagram.com/_muzaffaar_) &nbsp; 🌐 [Portfolio](https://portfolio-puce-seven-wzfdau6dkh.vercel.app/) &nbsp; 🧩 [Codewars](https://www.codewars.com/users/GaybullayevMuzaffar) &nbsp; 🔗 [LinkedIn](https://www.linkedin.com/in/muzaffar-gaybullayev) &nbsp;
 
 ---
 
